@@ -2,4 +2,4 @@
 - 👀 i’m interested in language, retro games/tech/software, and idol girl groups
 - 🌱 i’m currently learning indonesian language
 - 💞️ i’m looking to collaborate on my early retirement. pls enquire abt sponsorship
-- 📫 [@radsectors](https://twitter.com/radsectors]
+- 📫 [@radsectors](https://twitter.com/radsectors)
