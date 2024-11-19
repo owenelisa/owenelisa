@@ -1,4 +1,4 @@
-- 👋 hi, i’m owen
+* 👋 hi, i’m owen
 * 🏢 former php dev based in aurora, il but currently in tulsa, ok.
 * 👀 i’m interested in [language](https://www.duolingo.com/profile/radsectors), retro games/tech/software, and [idol girl groups](https://www.last.fm/user/radsectors).
 * 🌱 i’m currently learning ~~indonesian~~ chinese language.
